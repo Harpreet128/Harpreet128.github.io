@@ -1,2 +1,6 @@
 # Harpreet128.github.io
-# This is my today induction program report 
+# This is my today induction program report (date - 15th july 2024)
+# today first speaker Dr. Randhir Singh sir tell us about GitHub to share our daily induction program report. what we gain from lecture giver by other speakers
+# today second speaker Dr. pyare lal sir.they tell us about many things. They share their college experience.They said the things we have we should transfer to next generation, always be positive,use inner power to fight outer problem,do not fear,don't care about insult and the main point of the lecture never break promise.
+# today third speaker Mr. sony goyal sir alumni of Gne college tell us about how should we spend our next 4 years. They tell us what we do we should give our 100 percent. They us about LIFE , L mean Learn,I mean inquire,F mean Future,E mean explore. what we should do in 1st year is learn,2nd year inquire,3rd year Future,4th year explore
+# today last and fourth speaker Mr. pancham sir our senior and fourth year student of Btech ME student in gne college tell us about language.They tell us about contribution of words,arm and hand, voice and tone in our language.There is 7 percent contribution of our word, 38 percent contribution of our voice and tone and 55 percent contribution of our body.He tell us about seven universal expression.He tell us about non-verbal communication/body language.He tell us about SAE competition: A Launchpad for engineering careers.
